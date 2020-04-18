@@ -7,3 +7,6 @@ morgan's stalker osu skins pog
 ![azerite old skin](https://circle-people.com/wp-content/Skins/azr8%20(Azerite)/Azerite%20(osu%20player84)%202017-08-16.osk)
 ![](https://osu.ppy.sh/ss/14770881/40bf)
 
+![gasha singletap funny meme](https://www.reddit.com/r/OsuSkins/comments/f71fwu/gasha_singletap_skin/)
+![](https://imgur.com/a/7FU6SwH)
+
