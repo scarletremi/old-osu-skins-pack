@@ -10,3 +10,5 @@ morgan's stalker osu skins pog
 # [gasha singletap funny meme](https://www.reddit.com/r/OsuSkins/comments/f71fwu/gasha_singletap_skin/)
 ![](https://imgur.com/a/7FU6SwH)
 
+# [the shit mixed skin i made](https://www.mediafire.com/file/n2q67scrv61bh70/-_venomthor2_2020.osk/file)
+im too lazy to add screenshots just dl the skins lol 
