@@ -16,6 +16,7 @@ less input lag anyways (at least for me)
 im too lazy to add screenshots just dl the skins lol(not anymore)
 
 # [huipsodfsdhiudfhjuipn](http://www.mediafire.com/file/uf68puezkg5uwc4/-_merami_osu_skin_edit.osk/file)
+![](https://osu.ppy.sh/ss/17273657/d8cf)
 
 # [that skin where i choked daidai and got a 200pp play](http://www.mediafire.com/file/07a98ioh86cl277/-_yugen_edit_venomthor2.osk/file)
 ![](https://osu.ppy.sh/ss/17273653/aff7)
