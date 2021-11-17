@@ -12,7 +12,8 @@ less input lag anyways (at least for me)
 ![](https://imgur.com/a/7FU6SwH)
 
 # [the shit mixed skin i made](https://www.mediafire.com/file/n2q67scrv61bh70/-_venomthor2_2020.osk/file)
-im too lazy to add screenshots just dl the skins lol 
+![](https://osu.ppy.sh/ss/17273647/4159)
+im too lazy to add screenshots just dl the skins lol(not anymore)
 
 # [huipsodfsdhiudfhjuipn](http://www.mediafire.com/file/uf68puezkg5uwc4/-_merami_osu_skin_edit.osk/file)
 
