@@ -1,5 +1,6 @@
 # venomthor-osu-skins
-venomthor osu skins pog i barely put skins in here 
+venomthor osu skins pog i barely put skins in here btw i dont use 2x elements so if you use 2x elements in skins either convert them or just dont use 2x
+less input lag anyways (at least for me)
 
 # [goth loli skin](https://www.reddit.com/r/OsuSkins/comments/f6jck3/std_hdsd_gothic_lolita_fever_inspired_by_the/)
 ![](https://osu.ppy.sh/ss/14517334/4020)
