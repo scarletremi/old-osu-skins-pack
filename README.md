@@ -18,6 +18,7 @@ im too lazy to add screenshots just dl the skins lol(not anymore)
 # [huipsodfsdhiudfhjuipn](http://www.mediafire.com/file/uf68puezkg5uwc4/-_merami_osu_skin_edit.osk/file)
 
 # [that skin where i choked daidai and got a 200pp play](http://www.mediafire.com/file/07a98ioh86cl277/-_yugen_edit_venomthor2.osk/file)
+![](https://osu.ppy.sh/ss/17273653/aff7)
 
 # [some random edit i did while i was bored](https://www.mediafire.com/file/o0neuz7uqxnfnxz/-+skin+edit+xd.osk/file)
 ![](https://osu.ppy.sh/ss/17273634/62ae)
